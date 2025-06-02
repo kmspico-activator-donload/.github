@@ -5,7 +5,7 @@ KMSPico Activator is a well-known tool used primarily by IT professionals, educa
 
 
 
-## [👉👉 KMSpico Activator For All Windows](https://freesoftcr.com/dl)
+## [👉👉 KMSpico Activator For All Windows](https://freesoftcr.com/dl/)
 
 
 
